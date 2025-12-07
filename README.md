@@ -1,4 +1,4 @@
-## Hi there 👋
+## KOPI NYA KAKAK!!!
 
 <!--
 **ujungpandangcoffee/UjungPandangCoffee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
